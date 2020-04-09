@@ -4,7 +4,7 @@
 
 **A1:**   +375(29)107-51-04
 
-**mail:**   anastasia.tumilowitch@hmail.com
+**mail:**   anastasia.tumilowitch@gmail.com
 
 ### ABOUT
 
